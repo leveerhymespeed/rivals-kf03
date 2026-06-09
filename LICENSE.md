@@ -1,4 +1,4 @@
-
+rivals Scripts no-ban offers the most advanced rivals Script, with esp and fly. Perfect for dominating any match.
 
 
 
